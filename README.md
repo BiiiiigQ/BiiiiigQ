@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @BiiiiigQ
+- 👀 I’m interested in DATA ANALYTICS, DATA SCIENCE and also SUPPLY CHAIN
